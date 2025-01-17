@@ -1,0 +1,1 @@
+# KT6_Lenchuk_Vadim_431
